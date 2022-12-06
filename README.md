@@ -1,1 +1,3 @@
-https://github.com/Chaithanya0816/ML-Final-Project
+Name: Chaithanya Etikala
+cxe41200@ucmo.edu
+#700714120
